@@ -66,7 +66,7 @@ Feel free to open issues or suggestions.
 
 📬 Contact
 
-Email: mttlbsanskar3445@gmail.com
+Email: mttlsanskar3445@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/sanskar-mittal-844295336/
 
